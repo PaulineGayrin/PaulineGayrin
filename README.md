@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 # 💫 About Me:
-Geologist programer <br>Marvel at nature, code nice bits.<br><br>📍 Doctoral researcher, GFZ Potsdam (Germany)<br>🌍 Eastern Africa rift system<br>💻 Developer of Fatbox<br><br>👩🏼 She/her<br>💬 gayrin@gfz-potsdam.de
+Geologist programer <br>Marvel at nature, code nice bits.<br><br>📍 Doctoral researcher, GFZ Potsdam (Germany)<br>🌍 Eastern Africa rift system<br>💻 Developer of Fatbox<br><br>👩🏼 She/her<br>💬 paulinegayrin@protonmail.com
 
 
 ## 🌐 Socials:
